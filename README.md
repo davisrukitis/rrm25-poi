@@ -1,1 +1,1 @@
-# Rimi Riga Marathon 2025 Points of Interest and Course routes
+# RRM 2025 POI's and Course routes
